@@ -1,1 +1,0 @@
-# ictrl-rizal.github.io
